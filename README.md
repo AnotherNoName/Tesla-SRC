@@ -6,3 +6,7 @@ stay mad
 # Tesla-SRC-Leak
  
  ez leak (BM carepipi :rofl:) shitty skid is literally just w+2 with different hud and 5 modules of other skids lol, although i liked the array list
+ 
+BM por privado: HIJO DE PUTA MALDITO MORITE EN EL INFIERNO SATANAS IDIOTA
+
+BM LGC anuncios: el tesla ese tiene backdoor XD, si lo lekea ni me importa (por cierto, el idiota dice que tiene backdoor cuando estoy lekeando el src que cualquiera puede revisar :>)
