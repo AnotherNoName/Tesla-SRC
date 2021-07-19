@@ -9,4 +9,4 @@ stay mad
  
 BM por privado: HIJO DE PUTA MALDITO MORITE EN EL INFIERNO SATANAS IDIOTA
 
-BM LGC anuncios: el tesla ese tiene backdoor XD, si lo lekea ni me importa (por cierto, el idiota dice que tiene backdoor cuando estoy lekeando el src que cualquiera puede revisar :>)
+BM LGC anuncios: el tesla ese tiene backdoor XD, si lo lekea ni me importa (esta clean y cualquiera lo puede verificar)
